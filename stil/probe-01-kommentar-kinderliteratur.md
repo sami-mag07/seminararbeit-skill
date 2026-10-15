@@ -1,0 +1,18 @@
+# Schreibprobe 1: Kommentar Kinderliteratur (von Sami, 13.10.2026 im Chat eingefügt, erweiterte Fassung, wörtlich)
+
+In diesem Kommentar erlöustere ich weshalb Schulbücher aus c>Schulbiblotjehekne uasgetausczt ider Umgetauscht werdne sollten. 
+Die gegebrenen Stereotyopen die durch alte Kinderliteratur an die Knder vermittelt wird stezt sich in das gehirn der kinder und setzt sich in das unzerbewusstsein. Das resultuiert dann in Alltagsrassisum in <SChulen und im Umfeld der kInder, aber wieso ist Kinderrassinsmus so krittisch?
+Kinder befinden sich ind er Entwicklung. Das bedeutet das die Gehrine der Kinder ihre <emotionein und iegenschuafter und vorallen die charaktäre die sich entwicklen. 
+Frau kristina von Aallen sorahc darüber, das Kinder die sich schon im frühen alter diksriminiert fphlen, sich im späteren alter in einer shclehctereren psychischen laage befinden. 
+Das N wort soll aus Kinderlitasratur wie Pipie langstrumpf gestrichen werden udn durch andere wölrter ersetzt werden. Die debatte die sich aus diesem thema erschliesst existiert schson seit jeahrzehnten. Sie streckt sich püber elternräre, Schulkriese und sogar bis in die poliktik. Das grundlegende problem besteht darin das die vewendung des woertes bei kidern zu verwendung führen kann. Im worst case bedeutet das die kinder keine aufklärung erfqahren. Da sbeduetet im umkehrschkuss bedeutet das sie das wot weder nch geshcichtlich einorndne können geshweigfe denn genauerer informationen über verweng etc. verwenden.
+Das problemwas deazszt. 
+AUfklörung istd as wsas fehlt, denn kinder und jugendliche wören besser vorbereitet wenn sie von Aufsichtsopersonen und veratmwwortelichen besser in bestimmten themen wie stereotypen aufgeklärt werden, jedoch wa sits mit stereotypen gemeint? in Kiinderliteraur wei in bpchern wie jiim knopf oder dem glöckner von notre dame werder stereotypen vermitteln die dem heutigen zeitgeist ncihtmehr zustimmen. IM Buch der glöckner von dotre dame wird z.B der glöckner als von der gesellschaft asugeschlossener mensch mit multiplen behinderungen dargestellt, damit vermittelt er das bild das MEnschwen mit behinderungen mehr wert sind und damit weniger wert sind. Das Buch Jim knopf ist eine moderne darastellung von rassismus. 
+Ist das umsortieren udn asusortiren von Kinderliteratur Kpnstleischer diebstahl oder berubug vin tradition udn kultur? Viele menschen behaupten, dass kinderliteratur fester teil usnerer egesellschaft ist, weil Famileien seit generationen die literatur an famielen ermitteln. K[nstler behaupten auch das es die K[nstlerische freihit beeintr’chtig, denn es wprde arbeit und die freihe wortwahl einschr’nken.  Manche sagen auch das sie sich durch aspassungen yensiert f[hlenDen Künstler sollten die Freiheit, freies Künstlerische Freiheit einzuhalten, behalten, und eine Künstlerin schrieb in ihrem Gedicht genau das in M3. . 
+Zusammenfassend stimme ich der Leitfrage ob man SChulbibotheken asu bzw umsortieren sollzte nur teilweise zu, denn ich ich buin der meinung das die weiterfphrung von traditionen und das weiterreichen der kultur wichtig ist, dennoch sehe ich das Risiko, dass sich Kinder nicht genug aufgeklärt fühlen, dazu sollten Lehrer genügend Weiterbildungen bekommen, um den Kindern nötiges Wissen weiterzugeben. 
+
+## Hinweis für den Schreiber
+Tippfehler, fehlende Kommas und Kleinschreibung NICHT übernehmen. Nutzbar sind nur Satzbau und Argumentationsmuster:
+Kapitel mit Ziel-Ankündigung eröffnen, Ursache-Folge-Ketten ("Das resultiert dann in", "Das bedeutet"),
+Überleitung per Frage (in der Arbeit als Aussagesatz umformen), Expertin namentlich anführen,
+"Das grundlegende Problem besteht darin", "im Umkehrschluss", "geschweige denn".
+Ich-Form und "worst case" gehören nicht in die Seminararbeit.
